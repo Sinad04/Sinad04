@@ -1,1 +1,1 @@
-i love java and kissing men
+everyday i wake up
